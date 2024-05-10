@@ -6,9 +6,7 @@ Welcome to Shred Vision! These Terms of Service ("Terms") govern your use of Shr
 
 2. Safety
 
-    When using Shred Vision, you agree to prioritize your safety and understand that the service offers feedback or analysis, not direct coaching or in-person training.
-    Shred Vision's analysis does not replace in-person coaching or the need for personal judgment. Snowsports inherently carry risks, and it is your responsibility to only engage in activities that are safe for you.
-    Before trying anything new, consult with a ski coach in person on the mountain to ensure it fully aligns with your skill level and safety standards.
+Shred Vision provides feedback or analysis, not coaching. This feedback and analysis do not replace in-person coaching or your personal judgment. Snowsports inherently involve risks, and it is your responsibility to engage only in activities that are safe for you. Always prioritize your safety. Before attempting anything new, consult with a nationally certified coach in-person on the mountain to ensure it fully aligns with your skill level and safety standards.Shred Vision is not liable for any injuries or damages resulting from actions taken based on feedback or analysis.
 
 3. User Responsibilities
 
@@ -27,7 +25,7 @@ You agree not to submit videos that contain illegal activities, infringe on any 
 Shred Vision reserves the right to modify our services and these Terms at any time. We will notify you of any significant changes to these Terms or our services.
 
 7. Communication
-By using our services, you agree to receive communications from us, including emails, about service updates, promotional offers (opt outs available), and feedback on your videos.
+By using our services, you agree to receive communications from us, including emails, about service updates, promotional offers (opt-outs available), and feedback on your videos.
 
 8. Disclaimers and Limitations of Liability
 Shred Vision provides its services on an "as is" and "as available" basis. We do not guarantee that our services will be free of errors or interruptions. We shall not be liable for any indirect, incidental, special, or consequential damages resulting from the use of our services.
