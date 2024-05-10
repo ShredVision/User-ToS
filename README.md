@@ -6,7 +6,7 @@ Welcome to Shred Vision! These Terms of Service ("Terms") govern your use of Shr
 
 2. Safety
 
-Shred Vision provides feedback or analysis, not coaching. This feedback and analysis do not replace in-person coaching or your personal judgment. Snowsports inherently involve risks, and it is your responsibility to engage only in activities that are safe for you. Always prioritize your safety. Before attempting anything new, consult with a nationally certified coach in-person on the mountain to ensure it fully aligns with your skill level and safety standards.Shred Vision is not liable for any injuries or damages resulting from actions taken based on feedback or analysis.
+Shred Vision provides feedback or analysis, not coaching. This feedback and analysis do not replace in-person coaching or your personal judgment. Snowsports inherently involve risks, and it is your responsibility to engage only in activities that are safe for you. Always prioritize your safety. Before attempting anything new, consult with a nationally certified coach in-person on the mountain to ensure it fully aligns with your skill level and safety standards. Shred Vision is not liable for any injuries or damages resulting from actions taken based on feedback or analysis.
 
 3. User Responsibilities
 
