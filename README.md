@@ -1,4 +1,4 @@
-# ToS
+# User ToS
 Terms of Service for Shred Vision
 
 1. Introduction
